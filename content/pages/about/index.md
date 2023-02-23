@@ -1,13 +1,13 @@
 +++
 title = "About me"
 draft = false
-description = ""
 image = ""
+description = ""
 +++
 ![](/img/default-author.jpg)
 
-## My Name
-
-mail@example.org
+## Vlad
 
 Here should be some info about me...
+
+https://www.instagram.com/vlad_teraz/
