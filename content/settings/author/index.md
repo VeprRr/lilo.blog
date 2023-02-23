@@ -2,5 +2,5 @@
 headless = true
 name = "Vlad"
 image = ""
-url = "/about/"
+url = "https://www.instagram.com/vlad_teraz/"
 +++
