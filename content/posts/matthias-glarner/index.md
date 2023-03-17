@@ -4,6 +4,7 @@ date = "2023-03-17"
 draft = false
 pinned = false
 image = "m-g-cpop.jpg"
+description = "Matthias bei seiner Arbeit als Coach für die Sportler RS in Magglingen."
 +++
 ![](download-1-.jpg)
 
