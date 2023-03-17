@@ -3,7 +3,7 @@ title = "Matthias Glarner"
 date = "2023-03-17"
 draft = false
 pinned = false
-image = "matthias-glarner-cr.jpg"
+image = "m-g-cpop.jpg"
 +++
 ![](download-1-.jpg)
 
