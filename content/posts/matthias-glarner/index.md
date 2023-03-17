@@ -14,3 +14,7 @@ Juni, 2017 gab es ein Fotoshooting für die Schweizer Illustrierte. Dabei wollte
 > Dies riss es mich vom Gondeldach, meine Sicherungsleine riss ab und ich flog 12 Meter auf den Boden.
 
 Dies ereignete sich ca. Um 8.0- 8.30 Uhr. Nach dem Shooting.
+
+### Wie ging es weiter? 
+
+Die Rega kam ziemlich rasch und flog ihn in die Insel. Danach gab es ein MRI. Darin sah man eine Fussfraktur und mehrere Bänderisse im Fuss, das Becken war aufgesprengt, Inenband Kreuzbandriss Schirmblechblutungen rechts plus zwei gebrochene Finger. Nach dem MRI ging es noch etwa zwei Stunden bis er acht Stunden lang operiert wurde. Zuerst das Becken operiert, Hand und Fuss parallel operiert.
