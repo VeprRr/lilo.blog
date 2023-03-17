@@ -1,7 +1,7 @@
 +++
 headless = true
-icon = "/media/img_1664.jpeg"
-logo = "/media/img_1664.jpeg"
-image = "/media/img_1664.jpeg"
+icon = "/media/r.png"
+logo = "/media/adobestock_249970568_journalism-image-1-.jpg"
+image = "/media/adobestock_249970568_journalism-image-1-.jpg"
 color = "#5d9fbd"
 +++
