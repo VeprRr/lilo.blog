@@ -14,7 +14,7 @@ In diesem Artikel werden Möglichkeiten aufgezeigt für das Verfassen von Blogei
 
 Tipp: Um diesen Blogartikel zu behalten, ohne ihn zu löschen, kann man den **Entwurfsmodus** einschalten.
 
-## **Kannst du uns deinen Tag einmal schildern?** 
+## **Können sie uns ihren Tag einmal schildern?** 
 
 Juni, 2017 gab es ein Fotoshooting für die Schweizer Illustrierte. Dabei wollten sie einen Spitzenschwinger bei der Arbeit begleiten. Zwischen 7.00 - 7.30 Uhr war ich beim Hasliberg, bevor die Bahn offiziell offen hatte. Vor dem Betrieb der Bahn, stieg ich auf die Gondel und fuhr Richtung Tal. Danach stand ich auf die Gondel drauf und das Fotoshooting, vom Boden aus, begann. Anschliessend verhedderte sich das Sicherungsseil meines Klettergurtes in der Stüzte. Dies riss es mich vom Gondeldach, meine Sicherungsleine riss ab und ich flog 12 Meter auf den Boden. Dies ereignete sich ca. Um 8.0- 8.30 Uhr. Nach dem Shooting.
 
