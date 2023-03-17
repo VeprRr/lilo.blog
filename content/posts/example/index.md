@@ -3,21 +3,20 @@ title = "Example Post"
 date = "2023-01-01"
 draft = false
 pinned = false
-tags = [ "Lilo", "Example" ]
+tags = ["Lilo", "Example"]
 image = "/img/default-image.jpg"
 description = "In diesem Artikel werden Möglichkeiten aufgezeigt für das Verfassen von Blogeinträgen."
 footnotes = "In der Fusszeile können zum Beispiel Bildquellen angegeben werden. Dieser Text ist abgetrennt durch eine Linie und etwas kleiner."
 +++
-
 {{<lead>}}
 In diesem Artikel werden Möglichkeiten aufgezeigt für das Verfassen von Blogeinträgen.
 {{</lead>}}
 
 Tipp: Um diesen Blogartikel zu behalten, ohne ihn zu löschen, kann man den **Entwurfsmodus** einschalten.
 
-# Überschrift 1
+## **Kannst du uns deinen Tag einmal schildern?** 
 
-So sieht die grösste Überschrift aus (H1).
+Juni, 2017 gab es ein Fotoshooting für die Schweizer Illustrierte. Dabei wollten sie einen Spitzenschwinger bei der Arbeit begleiten. Zwischen 7.00 - 7.30 Uhr war ich beim Hasliberg, bevor die Bahn offiziell offen hatte. Vor dem Betrieb der Bahn, stieg ich auf die Gondel und fuhr Richtung Tal. Danach stand ich auf die Gondel drauf und das Fotoshooting, vom Boden aus, begann. Anschliessend verhedderte sich das Sicherungsseil meines Klettergurtes in der Stüzte. Dies riss es mich vom Gondeldach, meine Sicherungsleine riss ab und ich flog 12 Meter auf den Boden. Dies ereignete sich ca. Um 8.0- 8.30 Uhr. Nach dem Shooting.
 
 ## Überschrift 2
 
@@ -37,7 +36,7 @@ Am besten einfach alle Formatierungsmöglichkeiten in der Toolbar von `Inhalt` m
 
 ### Fett und Kursiv
 
-Natürlich gibt es auch **fett** und _kursiv_.
+Natürlich gibt es auch **fett** und *kursiv*.
 
 ### Links
 
@@ -47,18 +46,18 @@ Natürlich gibt es auch **fett** und _kursiv_.
 
 > «Zitate können hervorgehoben werden.»
 >
-> _Autor mit [Link zur Quelle](https://www.lilo.blog)_
+> *Autor mit [Link zur Quelle](https://www.lilo.blog)*
 
-Die Quellenangabe muss _kursiv_ geschrieben werden, damit sie als Fusszeile erkannt wird.
+Die Quellenangabe muss *kursiv* geschrieben werden, damit sie als Fusszeile erkannt wird.
 
 ### Liste
 
 So sieht eine Liste aus:
 
-- Nam de isto magna dissensio est.
-- Mihi, inquam, qui te id ipsum rogavi?
-- Haec et tu ita posuisti, et verba vestra sunt.
-- Idem fecisset Epicurus, si sententiam hanc, quae nunc Hieronymi est, coniunxisset cum Aristippi vetere sententia.
+* Nam de isto magna dissensio est.
+* Mihi, inquam, qui te id ipsum rogavi?
+* Haec et tu ita posuisti, et verba vestra sunt.
+* Idem fecisset Epicurus, si sententiam hanc, quae nunc Hieronymi est, coniunxisset cum Aristippi vetere sententia.
 
 ### Nummerierte Liste
 
@@ -89,7 +88,7 @@ Wenn bei einem Bild ein `ALT TEXT` erfasst wird, so wird dieser als Bilduntersch
 
 Eine Horizontale Linie kann man entweder durch ein `<hr>` einfügen oder indem man im `Markdown`-Modus drei Striche `---` einfügt. So sieht die Linie aus:
 
----
+- - -
 
 ## Lead
 
@@ -97,8 +96,8 @@ Eine Horizontale Linie kann man entweder durch ein `<hr>` einfügen oder indem m
 Oft haben Artikel unterhalb des Haupttitels einen einführenden Lead, der etwas grösser dargestellt wird.
 {{</lead>}}
 
-`{{</*lead*/>}}`  
-Ein Lead steht zwischen zwei solchen Blöcken.  
+`{{</*lead*/>}}`\
+Ein Lead steht zwischen zwei solchen Blöcken.\
 `{{</*/lead*/>}}`
 
 ## Kasten
@@ -107,8 +106,8 @@ Ein Lead steht zwischen zwei solchen Blöcken.
 In dieser Box können Texte, Bilder, Videos oder andere Inhalte dargestellt werden.
 {{</box>}}
 
-`{{</*box*/>}}`  
-Der Inhalt einer Box muss wie hier von zwei Blöcken umgeben werden.  
+`{{</*box*/>}}`\
+Der Inhalt einer Box muss wie hier von zwei Blöcken umgeben werden.\
 `{{</*/box*/>}}`
 
 {{<box title="Ausklappbare Box">}}
@@ -121,8 +120,8 @@ Dies eignet sich auch für längere Inhalte.
 Auch Bilder können in eine Box gepackt werden.
 {{</box>}}
 
-`{{</*box title="Ausklappbare Box"*/>}}`  
-Wird ein Titel angegeben, so kann die Box ausgeklappt werden.  
+`{{</*box title="Ausklappbare Box"*/>}}`\
+Wird ein Titel angegeben, so kann die Box ausgeklappt werden.\
 `{{</*/box*/>}}`
 
 ## Video, Audio und andere Medien einbetten
