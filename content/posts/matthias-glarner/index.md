@@ -62,7 +62,7 @@ Es war schon eine Mammutaufgabe. Gesund sein ist mental immer einfach. Es gab sc
 
 Seine Sponsoren haben ihm sehr grosszügige Unterstützung gegeben. Und es kam in dieser Zeit sogar noch einen Sponsor dazu, der ebenfalls beim Aufbau mithelfen wollte.
 
-### Hat er diese Sponsoren noch heute oder nur noch vereinzelt?
+### Hat er diese Sponsoren heute noch oder nicht?
 
 Das ist eine Art natürlicher Prozess. Einen Teil der Sponsoren sind noch heute dabei und die anderen sagten, dass mit dem Karriereende auch das Engagement endet. Einige von ihnen sind aber geblieben. Also eine ganz coole Sache.
 
