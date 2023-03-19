@@ -52,4 +52,22 @@ Zum ersten Mal ging die Reha 2 Monate, nach der 2. Fussoperation waren es fast 3
 
 ### Wie hat Matthias Glarner mental beeinflusst, wenn er weiss, dass der Weg zurück lange und schwierig ist?
 
-Es war schon eine Mammutaufgabe. Gesund sein ist mental immer einfach. Es gab schon auch Momente, in denen er gesagt hat “das bringt doch nichts”. Schlussendlich hat er aber dieses Ziel zurückzukommen. Am Ende merkt er, wie “leer” er nach seinem Rücktritt war (physisch und psychisch).
+Es war schon eine Mammutaufgabe. Gesund sein ist mental immer einfach. Es gab schon auch Momente, in denen er gesagt hat “das bringt doch nichts”. Schlussendlich hat er aber dieses Ziel zurückzukommen. Am Ende merkt er, wie “leer” er nach seinem Rücktritt war (physisch und psychisch).  
+
+### Was unterstützt ihn in mentalen Krisen? Wo hat er Kraft getankt?
+
+> Einerseits hat mich das Ziel weitergetrieben, da ich noch Schwingerkönig war und den Titel verteidigen wollte. Und andererseits braucht es ein gutes Umfeld. Dazu kommt noch ein guter Reha plan. 
+
+### Haben seinen Sponsoren auch Geduld gehabt, diese Hürde auf sich zu nehmen und das mit ihm auszuprobieren? 
+
+Seine Sponsoren haben ihm sehr grosszügige Unterstützung gegeben. Und es kam in dieser Zeit sogar noch einen Sponsor dazu, der ebenfalls beim Aufbau mithelfen wollte.
+
+### Hat er diese Sponsoren noch heute oder nur noch vereinzelt?
+
+Das ist eine Art natürlicher Prozess. Einen Teil der Sponsoren sind noch heute dabei und die anderen sagten, dass mit dem Karriereende auch das Engagement endet. Einige von ihnen sind aber geblieben. Also eine ganz coole Sache.
+
+### Welche Berührungspunkte mit dem Schwingsport hat er jetzt noch? 
+
+Er ist als Trainer in einer Spitzensportrekrutenschule in Maggligen engagiert. Dort sind 2 Spitzenschwinger, welche die RS machen und 25 Schwinger, wie den WK absolvieren. Dazu kommt noch ein eigenes Projekt. In diesem Projekt betreut er zu zweit 30 Sportler/-innen. Hauptsächlich betreut er Schwinger, aber unter diesen 30 Personen ist es Querbeet an Sportarten. Dementsprechend hat er jeden Tag noch mit dem Sägemehl Kontakt.
+
+![](download-2-.jpg)
