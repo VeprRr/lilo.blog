@@ -26,7 +26,7 @@ Die Rega kam ziemlich rasch und flog ihn in die Insel. Danach gab es ein MRI. Da
 
 ### Was hat ihm der Arzt gesagt, als er herein kam?
 
-Matthias hat gefragt, ob es realistisch ist diese Season noch zu schwingen? Die Ärzte sagten daraufhin ziemlich schnell nein. Er wusste schon vor der Operation, dass es diese Season vorbei ist. 
+Die Ärzte sagten schnell, dass es diese Saison nichts mehr mit dem Schwingen sein wird. Das wusste er bereits vor der Operation.
 
 ### Wie lange brauchte die Verheilung?
 
