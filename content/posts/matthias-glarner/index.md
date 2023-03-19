@@ -18,7 +18,7 @@ Dies ereignete sich ca. Um 8.0- 8.30 Uhr. Nach dem Shooting.
 
 ### Wie ging es weiter?
 
-Die Rega kam ziemlich rasch und flog ihn in die Insel. Danach gab es ein MRI. Darin sah man eine Fussfraktur und mehrere Bänderisse im Fuss, das Becken war aufgesprengt, Inenband Kreuzbandriss Schirmblechblutungen rechts plus zwei gebrochene Finger. Nach dem MRI ging es noch etwa zwei Stunden bis er acht Stunden lang operiert wurde. Zuerst das Becken operiert, Hand und Fuss parallel operiert.Fertig war er am Abend um 22.00 Uhr.
+Die Rega kam ziemlich rasch und flog ihn in die Insel. Danach gab es ein MRI. Darin sah man eine Fussfraktur und mehrere Bänderisse im Fuss, das Becken war aufgesprengt, es gab Innenband- und Kreuzbandriss Schirmblechblutungen rechts plus zwei gebrochene Finger. Nach dem MRI ging es noch etwa zwei Stunden bis er acht Stunden lang operiert wurde. Zuerst das Becken operiert, Hand und Fuss parallel operiert.Fertig war er am Abend um 22.00 Uhr.
 
 ### Was waren seine ersten Gedanken als er die Situation im Überblick hattest?
 
