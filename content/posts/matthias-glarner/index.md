@@ -40,7 +40,7 @@ Er durfte nicht mehr als einen 90° Winkel machen. Das Becken war sehr anstrenge
 
 ### Gab es noch Aussichten zum Spitzensport zurückzukehren?
 
-Er hatte noch grosse Chancen zurück zu kehren. Am Eidgenössischen 2019 hat er wieder geschwungen. Mann musst Physiotherapie, pflegen, spzielle Wärmen, spezial Schuhe, entzündungshemmende Tabletten und spezielle Ergänzungsnahrung zu sich nehmen. Dies war ein ständiger Begleiter.
+Er hatte noch grosse Chancen zurück zu kehren. Am Eidgenössischen 2019 hat er wieder geschwungen. Man muss Physiotherapie, pflegen, spziell Wärmen, spezial Schuhe, entzündungshemmende Tabletten und spezielle Ergänzungsnahrung zu sich nehmen. Dies war ein ständiger Begleiter.
 
 ### Wie lange dauert die Aufbauphase?
 
