@@ -38,7 +38,7 @@ Im Becken haben sie ihm eine Platter hinein operiert. Die Heilung dauerte 2-3 Ja
 
 Er durfte nicht mehr als einen 90° Winkel machen. Das Becken war sehr anstrengend, aber war von Anfang an gut. Das mühsamste war der Fuss.
 
-### Gab es noch Aussichten zum Spitzensport zurück zu kehren?
+### Gab es noch Aussichten zum Spitzensport zurückzukehren?
 
 Er hatte noch grosse Chancen zurück zu kehren. Am Eidgenössischen 2019 hat er wieder geschwungen. Mann musst Physiotherapie, pflegen, spzielle Wärmen, spezial Schuhe, entzündungshemmende Tabletten und spezielle Ergänzungsnahrung zu sich nehmen. Dies war ein ständiger Begleiter.
 
