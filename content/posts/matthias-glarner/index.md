@@ -147,6 +147,6 @@ Die besten haben fast alles und der Rest hat fast keine Sponsoren. Bei ihm war e
 
 ### Ist Matthias Glarner zufrieden mit dem wie es jetzt ist?
 
-> Ich sehr happy! Ich bin total im Reinen mit der Vergangenheit.
+> Ich bin sehr happy! Ich bin total im Reinen mit der Vergangenheit.
 
 Er findet , es ist ein Privileg, mit den besten aus diesem Sport, zusammen zu arbeiten und freue ihm extrem, auf das, was kommt.
