@@ -34,7 +34,7 @@ Die Ärzte sagten schnell, dass es diese Saison nichts mehr mit dem Schwingen se
 
 Im Becken haben sie ihm eine Platter hinein operiert. Die Heilung dauerte 2-3 Jahre. Er musste den Fuss noch ein 2. Mal operieren und danach Reha absolvieren und merkte, dass es noch nicht wie vorher war. Man muss ca. zwischen 4-5 Jahren rechnen, bis alles wieder richtig gut ist.
 
-### Inwiefern hat ihn das Becken Privat dann eingeschrenkt?
+### Inwiefern hat ihn das Becken Privat dann eingeschränkt?
 
 Er durfte nicht mehr als einen 90° Winkel machen. Das Becken war sehr anstrengend, aber war von Anfang an gut. Das mühsamste war der Fuss.
 
