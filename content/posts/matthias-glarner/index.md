@@ -16,6 +16,14 @@ Juni, 2017 gab es ein Fotoshooting für die Schweizer Illustrierte. Dabei wollte
 
 Dies ereignete sich ca. Um 8.0- 8.30 Uhr. Nach dem Shooting.
 
-### Wie ging es weiter? 
+### Wie ging es weiter?
 
 Die Rega kam ziemlich rasch und flog ihn in die Insel. Danach gab es ein MRI. Darin sah man eine Fussfraktur und mehrere Bänderisse im Fuss, das Becken war aufgesprengt, Inenband Kreuzbandriss Schirmblechblutungen rechts plus zwei gebrochene Finger. Nach dem MRI ging es noch etwa zwei Stunden bis er acht Stunden lang operiert wurde. Zuerst das Becken operiert, Hand und Fuss parallel operiert.
+
+### Was waren seine ersten Gedanken als er die Situation im Überblick hattest?
+
+> Zuerst dachte ich es ist gar nicht so schlimm und man kann es operieren. Am Anfang waren es eigentlich positive Gedanken gewesen.
+
+### Was hat ihm der Arzt gesagt, als er herein kam? 
+
+Matthias hat gefragt, ob es realistisch ist diese Season noch zu schwingen? Die Ärzte sagten daraufhin ziemlich schnell nein. Er wusste schon vor der Operation, dass es diese Season vorbei ist.
