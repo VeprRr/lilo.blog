@@ -79,7 +79,7 @@ Er ist als Trainer in einer Spitzensportrekrutenschule in Maggligen engagiert. D
 
 Zum einen als Trainer und zum anderen ist er noch im Bewerbungs OK  für das Eidgenössische Schwingfest in Thun als Funktionär. Des weiteren arbeit er noch ein wenig mit Sponsoren. Der Schwingsport wird ihn die nächsten 5 bis 10 Jahre noch intensiv begleiten.  
 
-### Siehst er sich auch als Sportmoderator zum Beispiel beim SRF? 
+### Sieht er sich auch als Sportmoderator zum Beispiel beim SRF? 
 
 Beim letzten Eidgenössischen war er absichtlich nicht mit dabei, weil es sein erstes Eidgenössisches als Zuschauer war.
 
