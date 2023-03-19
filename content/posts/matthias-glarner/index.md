@@ -102,3 +102,51 @@ Das hat er 4 Jahre lang gemacht in einer Gewerbsschule in Interlaken. Sag niemal
 > Das ist sehr unterschiedlich. In erster Linie bin ich Athlektiktrainer im Bereich Kraft und Ausdauer.
 
 Er ist ein Berater für Tipps für technische oder taktische Fragen, wenn Schwinger zu ihm kommen. Wenn sie aber ein spezielleres Anliegen haben, schickt er sie zu Spezialisten, die er im Umfeld hatte.
+
+### Wurde er von Magglingen angefragt? 
+
+Er war während seiner Zeit als Schwinger bereits in Magglingen aktiv gewesen und hat das dann laufend organisiert. Nach seinem Rücktritt braucht er 2 Jahre Ruhe und Abstand von allem. Danach hat er ein Telefonat geführt und beide Seiten fanden es optimal, wenn er als Trainer in Magglingen arbeiten würde. So hat es sich ergeben. 
+
+### Hätte sich dieser Unfall so nicht ereignet, hätte er ihm diesen beruflichen Werdegang auch so vorstellen können?  
+
+> Ich war schon vor meinem Unfall nicht mehr am Höhepunkt meiner Karriere gestanden. 
+
+Er setzt sich sowieso damit auseinander, wie es weiter gehen soll. Also war der Unfall nicht der Auslöser gewesen. Dieser Weg wäre so oder so ähnlich abgelaufen. 
+
+### Hat er sich aber schon vorher gleich stark mit diesem Thema befasst oder hat er es einfach mal laufen lassen? 
+
+Seine Planung ging bis Ende August 2019 Viel weiter hat er gar nicht überlegt. Er hat aber auch eine Sicherheit durch sein Sportstudium gehabt. Finanziell gesehen, konnte er ihm auch ein halbes Jahr Zeit nehmen, um über das weitere Vorgehen nachzudenken. Er fand das ein guter Abschluss.
+
+### Brauchte es Verarbeitungszeit, bis er so gut über die Geschehnisse, wie jetzt, darüber sprechen konnte? 
+
+Er braucht schon Verarbeitungszeit. Die Bilder hat er heute noch im Kopf. Es ist ein Teil seines Lebens. Aber er konnte alles sehr gut verarbeiten. Ihm ist ein Psychologe beigestanden. 
+
+### Wie hätte er ihm sein Karriereende vorgestellt, wenn er ihm eines hätte ausmalen können?  
+
+Rückblickend ist es für ihn total stimmig, wie es war. Für ihn als Sportler ist es das Wichtigste, wenn er auswählen kann, will er noch oder nicht mehr. Und das konnte er, wenn auch in einem kleineren Mass. 
+
+> Ich bin absolut zufrieden, wie es gekommen war. Alles gut. 
+
+### Machen ihm seine Verletzungen heute noch medizinische Beschwerden? 
+
+Absolut null. Er kann Skifahren, Schwingen und in den Kraftraum gehen. Der Fuss bereitet manchmal etwas Mühe, dann nemmt er den Tag etwas lockerer. 
+
+### Wie kam er zum Schwingen? 
+
+Familientradition. So bin ich in den Schwingkeller gekommen. 
+
+> Ich würde allen Kindern empfehlen, sich zu bewegen und Spass haben am Sport. 
+
+### Von welchem Punkt an, im Schwingen, ist es nicht mehr nur einfach Sport, sondern Spitzensport? 
+
+Mit 15,16 Jahren kommen grosse Fragen auf einem zu. Was will man für eine Schule besuchen oder Lehre? Oder welchen Sport will man als Hauptsport betreiben? Er hat sich für den Schwingsport entschieden. Mit Dann wächst alles miteinander zusammen. Irgendwann war er in einem Kader und dann ging es immer weiter nach oben. 
+
+### Ist es im Schwingsport schwer an Sponsoren zu kommen? 
+
+Die besten haben fast alles und der Rest hat fast keine Sponsoren. Bei ihm war es so, dass mit steigender Leistung auch die Sponsoren zunahmen. Ab dem Königstitel kamen die Sponsoren von sich aus. 
+
+### Ist Matthias Glarner zufrieden mit dem wie es jetzt ist?
+
+> Ich sehr happy! Ich bin total im Reinen mit der Vergangenheit.
+
+Er findet , es ist ein Privileg, mit den besten aus diesem Sport, zusammen zu arbeiten und freue ihm extrem, auf das, was kommt.
