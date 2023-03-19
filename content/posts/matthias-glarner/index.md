@@ -26,4 +26,30 @@ Die Rega kam ziemlich rasch und flog ihn in die Insel. Danach gab es ein MRI. Da
 
 ### Was hat ihm der Arzt gesagt, als er herein kam? 
 
-Matthias hat gefragt, ob es realistisch ist diese Season noch zu schwingen? Die Ärzte sagten daraufhin ziemlich schnell nein. Er wusste schon vor der Operation, dass es diese Season vorbei ist.
+Matthias hat gefragt, ob es realistisch ist diese Season noch zu schwingen? Die Ärzte sagten daraufhin ziemlich schnell nein. Er wusste schon vor der Operation, dass es diese Season vorbei ist. 
+
+### Wie lange brauchte die Verheilung?
+
+> Alles was Herznahe ist, verheilt besser. 
+
+Im Becken haben sie ihm eine Platter hinein operiert. Die Heilung dauerte 2-3 Jahre. Er musste den Fuss noch ein 2. Mal operieren und danach Reha absolvieren und merkte, dass es noch nicht wie vorher war. Man muss ca. zwischen 4-5 Jahren rechnen, bis alles wieder richtig gut ist.
+
+### Inwiefern hat ihn das Becken Privat dann eingeschrenkt?
+
+Er durfte nicht mehr als einen 90° Winkel machen. Das Becken war sehr anstrengend, aber war von Anfang an gut. Das mühsamste war der Fuss.
+
+### Gab es noch Aussichten zum Spitzensport zurück zu kehren? 
+
+Er hatte noch grosse Chancen zurück zu kehren. Am Eidgenössischen 2019 hat er wieder geschwungen. Mann musst Physiotherapie, pflegen, spzielle Wärmen, spezial Schuhe, entzündungshemmende Tabletten und spezielle Ergänzungsnahrung zu sich nehmen. Dies war ein ständiger Begleiter.
+
+### Wie lange dauert die Aufbauphase?
+
+Zum ersten Mal ging die Reha 2 Monate, nach der 2. Fussoperation waren es fast 3 Monate Reha. Es ging beinahe ein Jahr, bis er wieder ein bisschen schwingen konnte.
+
+### Hat es ihn auch zurückgeworfen?
+
+> Mich hat es jeden Tag ein wenig zurückgeworfen. Ich musste quasi jeden Tag mit dem Fiebermesser schauen, was geht und was nicht. 
+
+### Wie hat Matthias Glarner mental beeinflusst, wenn er weiss, dass der Weg zurück lange und schwierig ist?
+
+Es war schon eine Mammutaufgabe. Gesund sein ist mental immer einfach. Es gab schon auch Momente, in denen er gesagt hat “das bringt doch nichts”. Schlussendlich hat er aber dieses Ziel zurückzukommen. Am Ende merkt er, wie “leer” er nach seinem Rücktritt war (physisch und psychisch).
