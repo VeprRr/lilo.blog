@@ -107,7 +107,7 @@ Er ist ein Berater für Tipps für technische oder taktische Fragen, wenn Schwin
 
 Er war während seiner Zeit als Schwinger bereits in Magglingen aktiv gewesen und hat das dann laufend organisiert. Nach seinem Rücktritt braucht er 2 Jahre Ruhe und Abstand von allem. Danach hat er ein Telefonat geführt und beide Seiten fanden es optimal, wenn er als Trainer in Magglingen arbeiten würde. So hat es sich ergeben. 
 
-### Hätte sich dieser Unfall so nicht ereignet, hätte er ihm diesen beruflichen Werdegang auch so vorstellen können?  
+### Hätte sich dieser Unfall so nicht ereignet, hätte er sich diesen beruflichen Werdegang auch so vorstellen können?  
 
 > Ich war schon vor meinem Unfall nicht mehr am Höhepunkt meiner Karriere gestanden. 
 
