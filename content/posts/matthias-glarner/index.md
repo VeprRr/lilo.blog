@@ -121,7 +121,7 @@ Seine Planung ging bis Ende August 2019 Viel weiter hat er gar nicht überlegt. 
 
 Er braucht schon Verarbeitungszeit. Die Bilder hat er heute noch im Kopf. Es ist ein Teil seines Lebens. Aber er konnte alles sehr gut verarbeiten. Ihm ist ein Psychologe beigestanden. 
 
-### Wie hätte er ihm sein Karriereende vorgestellt, wenn er ihm eines hätte ausmalen können?  
+### Wie hätte er sich sein Karriereende vorgestellt, wenn er ihm eines hätte ausmalen können?  
 
 Rückblickend ist es für ihn total stimmig, wie es war. Für ihn als Sportler ist es das Wichtigste, wenn er auswählen kann, will er noch oder nicht mehr. Und das konnte er, wenn auch in einem kleineren Mass. 
 
