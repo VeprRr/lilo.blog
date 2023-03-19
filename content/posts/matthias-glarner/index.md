@@ -72,8 +72,8 @@ Er ist als Trainer in einer Spitzensportrekrutenschule in Maggligen engagiert. D
 
 ![Matthias Glarner als Trainer in einer Spitzensportrekrutenschule in Maggligen. ](download-2-.jpg)
 
-> \- Sie stehen aber selbst nicht mehr auf dem Sägemehlring?   
-> - Ich stehe nur noch mit der Stoppuhr auf dem Sägemehl. Nur noch Trainerarbeit. 
+> \-Sie stehen aber selbst nicht mehr auf dem Sägemehlring?   
+> -Ich stehe nur noch mit der Stoppuhr auf dem Sägemehl. Nur noch Trainerarbeit. 
 
 ### Welche Zukunftsaussichten hat er? 
 
