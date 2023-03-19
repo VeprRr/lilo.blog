@@ -24,7 +24,7 @@ Die Rega kam ziemlich rasch und flog ihn in die Insel. Danach gab es ein MRI. Da
 
 > Zuerst dachte ich es ist gar nicht so schlimm und man kann es operieren. Am Anfang waren es eigentlich positive Gedanken gewesen.
 
-### Was hat ihm der Arzt gesagt, als er herein kam? 
+### Was hat ihm der Arzt gesagt, als er herein kam?
 
 Matthias hat gefragt, ob es realistisch ist diese Season noch zu schwingen? Die Ärzte sagten daraufhin ziemlich schnell nein. Er wusste schon vor der Operation, dass es diese Season vorbei ist. 
 
@@ -38,7 +38,7 @@ Im Becken haben sie ihm eine Platter hinein operiert. Die Heilung dauerte 2-3 Ja
 
 Er durfte nicht mehr als einen 90° Winkel machen. Das Becken war sehr anstrengend, aber war von Anfang an gut. Das mühsamste war der Fuss.
 
-### Gab es noch Aussichten zum Spitzensport zurück zu kehren? 
+### Gab es noch Aussichten zum Spitzensport zurück zu kehren?
 
 Er hatte noch grosse Chancen zurück zu kehren. Am Eidgenössischen 2019 hat er wieder geschwungen. Mann musst Physiotherapie, pflegen, spzielle Wärmen, spezial Schuhe, entzündungshemmende Tabletten und spezielle Ergänzungsnahrung zu sich nehmen. Dies war ein ständiger Begleiter.
 
@@ -58,7 +58,7 @@ Es war schon eine Mammutaufgabe. Gesund sein ist mental immer einfach. Es gab sc
 
 > Einerseits hat mich das Ziel weitergetrieben, da ich noch Schwingerkönig war und den Titel verteidigen wollte. Und andererseits braucht es ein gutes Umfeld. Dazu kommt noch ein guter Reha plan. 
 
-### Haben seinen Sponsoren auch Geduld gehabt, diese Hürde auf sich zu nehmen und das mit ihm auszuprobieren? 
+### Haben seinen Sponsoren auch Geduld gehabt, diese Hürde auf sich zu nehmen und das mit ihm auszuprobieren?
 
 Seine Sponsoren haben ihm sehr grosszügige Unterstützung gegeben. Und es kam in dieser Zeit sogar noch einen Sponsor dazu, der ebenfalls beim Aufbau mithelfen wollte.
 
@@ -66,8 +66,15 @@ Seine Sponsoren haben ihm sehr grosszügige Unterstützung gegeben. Und es kam i
 
 Das ist eine Art natürlicher Prozess. Einen Teil der Sponsoren sind noch heute dabei und die anderen sagten, dass mit dem Karriereende auch das Engagement endet. Einige von ihnen sind aber geblieben. Also eine ganz coole Sache.
 
-### Welche Berührungspunkte mit dem Schwingsport hat er jetzt noch? 
+### Welche Berührungspunkte mit dem Schwingsport hat er jetzt noch?
 
 Er ist als Trainer in einer Spitzensportrekrutenschule in Maggligen engagiert. Dort sind 2 Spitzenschwinger, welche die RS machen und 25 Schwinger, wie den WK absolvieren. Dazu kommt noch ein eigenes Projekt. In diesem Projekt betreut er zu zweit 30 Sportler/-innen. Hauptsächlich betreut er Schwinger, aber unter diesen 30 Personen ist es Querbeet an Sportarten. Dementsprechend hat er jeden Tag noch mit dem Sägemehl Kontakt.
 
-![](download-2-.jpg)
+![Matthias Glarner als Trainer in einer Spitzensportrekrutenschule in Maggligen. ](download-2-.jpg)
+
+> \- Sie stehen aber selbst nicht mehr auf dem Sägemehlring?   
+> - Ich stehe nur noch mit der Stoppuhr auf dem Sägemehl. Nur noch Trainerarbeit. 
+
+### Welche Zukunftsaussichten hat er? 
+
+Zum einen als Trainer und zum anderen ist er noch im Bewerbungs OK  für das Eidgenössische Schwingfest in Thun als Funktionär. Des weiteren arbeit er noch ein wenig mit Sponsoren. Der Schwingsport wird ihn die nächsten 5 bis 10 Jahre noch intensiv begleiten.
