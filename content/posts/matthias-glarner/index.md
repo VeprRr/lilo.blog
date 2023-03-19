@@ -77,4 +77,28 @@ Er ist als Trainer in einer Spitzensportrekrutenschule in Maggligen engagiert. D
 
 ### Welche Zukunftsaussichten hat er? 
 
-Zum einen als Trainer und zum anderen ist er noch im Bewerbungs OK  für das Eidgenössische Schwingfest in Thun als Funktionär. Des weiteren arbeit er noch ein wenig mit Sponsoren. Der Schwingsport wird ihn die nächsten 5 bis 10 Jahre noch intensiv begleiten.
+Zum einen als Trainer und zum anderen ist er noch im Bewerbungs OK  für das Eidgenössische Schwingfest in Thun als Funktionär. Des weiteren arbeit er noch ein wenig mit Sponsoren. Der Schwingsport wird ihn die nächsten 5 bis 10 Jahre noch intensiv begleiten.  
+
+### Siehst er sich auch als Sportmoderator zum Beispiel beim SRF? 
+
+Beim letzten Eidgenössischen war er absichtlich nicht mit dabei, weil es sein erstes Eidgenössisches als Zuschauer war.
+
+> Bis jetzt ist noch keine Anfrage gekommen. Wie es beim nächsten Eidgenössischen sein wird, werden wir sehen....  
+
+### Wie, beruflich gesehen, nützt ihm sein Sportstudium etwas? 
+
+Dieses Studium ist breit gefächert und ging bei ihm in Richtung Sport und Leistung, was für ihn als Trainer nun einen Nutzen hat. Auch für das Verständis seiner Verletzungen, war das Studium hilfreich. 
+
+### Es gibt Sportler, die sich einen Beruf aneignen, damit sie für nach dem Sport etwas in der Hand haben. War das bei ihm auch der Fall?  
+
+Ja und nein. Einerseits ja, damit er auch nach dem Spitzensport einen Ausgangspunkt hat und andererseits wollte er sich mit Sport befassen und sein Leben mit Sport verbringen. Es war eine win-win Situation gewesen. 
+
+### Käme es infrage Sport in einem Schulzimmer zu unterrichten? 
+
+Das hat er 4 Jahre lang gemacht in einer Gewerbsschule in Interlaken. Sag niemals nie, aber im Moment ist es gut so wie es ist. Auch ein Unterschied ist, dass es bei Schüler/-innen manchmal etwas an Motivation fehlt. Bei den Sportler/-innen ist dies anders. Sie kommen und wollen 120% von ihm. 
+
+### Welche “Beziehung” hat er zu seinen Sportler/-innen? Mentor oder einfach Trainer? 
+
+> Das ist sehr unterschiedlich. In erster Linie bin ich Athlektiktrainer im Bereich Kraft und Ausdauer.
+
+Er ist ein Berater für Tipps für technische oder taktische Fragen, wenn Schwinger zu ihm kommen. Wenn sie aber ein spezielleres Anliegen haben, schickt er sie zu Spezialisten, die er im Umfeld hatte.
