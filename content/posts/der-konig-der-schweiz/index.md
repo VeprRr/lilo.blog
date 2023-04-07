@@ -35,3 +35,19 @@ Die Operationen hinter sich lassend, trainiert Glarner wieder weiter und bereite
 Schlussendlich hat er mit der Titelverteidigung ein klares Ziel. Nach seinem Rücktritt hat er sich psychisch und physisch «leer» gefühlt. In Zeiten von Rückschlägen und mentalen Tiefs, holt sich Glarner Kraft von seinem Umfeld und dem Ziel den Schwingerkönigs Titel verteidigen zu können. Ebenso wichtig für den mentalen Aufbau, ist die Unterstützung eines Sportpsychologen.
 
 > «Durch die psychologische Unterstützung, habe ich alles gut verarbeitet und trage heute keinerlei offene Wunden mit mir herum».
+
+### Sponsoren und Unterstützung
+
+Seine Sponsoren haben sehr grosse Geduld in Bezug auf die Verletzung gezeigt. Sogar noch ein neuer Sponsor ist in dieser Zeit dazu gekommen. Ausserdem stehen die sie nicht nur schüchtern am Rande, sondern helfen auch aktiv beim Aufbau und mit.
+
+Nach dem Rücktritt haben die meisten Sponsoren ihren Vertrag mit Glarner beendet.
+
+> «Dies ist ein natürlicher Prozess», sagte Glarner
+
+Jedoch sind nicht ganz alle gegangen. Er arbeitet heute noch mit verbleibenden Sponsoren zusammen.
+
+### Die Zukunft nach dem Spitzensport
+
+Heute engagiert sich Matthias Glarner unter anderem als Trainer in der Spitzensportrekrutenschule in Magglingen. Dort betreut er Schwinger, die den WK (zu absolvierende Diensttage in der Armee) durchlaufen. Zudem hat Glarner ein eigenes Projekt, in dem er zu zweit 30 Sportler und Sportlerinnen in unterschiedlichsten Sportarten, unterstützt. Des Weiteren ist Glarner als Funktionär im Bewerbungs OK für das Eidgenössische Schwingfest in Thun tätig. Der Schwingsport wird ihn sicher noch die nächsten 10 Jahre beruflich begleiten.
+
+Sein Sportstudium ist ihm sowohl früher als auch heute noch von grosser Hilfe. Sport ist schon immer ein wichtiger Teil von Glarners Leben gewesen. Deshalb hat er auch Sport studieren wollen. Nicht nur, damit er eine Ausbildung hat, sodass er auch nach dem Spitzensport einer Beschäftigung nachgehen kann.
