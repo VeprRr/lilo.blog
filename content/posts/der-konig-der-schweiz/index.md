@@ -22,6 +22,8 @@ Im Juni, 2017 zwischen 7.00 – 7.30 Uhr ist der Schwingerkönig am Hasliberg, n
 
 Die Rega fliegt ihn rasch nach Bern ins Inselspital. Dort muss sich Matthias Glarner einem «MRI», also einem Röntgen, unterziehen. Dabei kommt heraus, dass Glarner eine Fussfraktur, mehrere Bänderrisse innerhalb des Fusses, ein aufgesprengtes Becken, Innen- und Kreuzbandrisse, Schirmblechblutungen und zwei gebrochene Finger hat. Daraufhin wird er erstmal zwei bis acht Stunden operiert.
 
+> Zuerst dachte ich es ist gar nicht so schlimm und man kann es operieren. Am Anfang waren es eigentlich positive Gedanken gewesen.
+
 Für Matthias Glarner ist es zunächst ein Aufwachen und Realisieren der Lage. Der Arzt hat ihm schnell gesagt, diese Saison ist vorbei. Aber an das Karierende denkt Matthias Glarner noch überhaupt nicht.
 
 ### Heilung und Wiederaufbau
