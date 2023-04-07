@@ -53,3 +53,5 @@ Jedoch sind nicht ganz alle gegangen. Er arbeitet heute noch mit verbleibenden S
 Heute engagiert sich Matthias Glarner unter anderem als Trainer in der Spitzensportrekrutenschule in Magglingen. Dort betreut er Schwinger, die den WK (zu absolvierende Diensttage in der Armee) durchlaufen. Zudem hat Glarner ein eigenes Projekt, in dem er zu zweit 30 Sportler und Sportlerinnen in unterschiedlichsten Sportarten, unterstützt. Des Weiteren ist Glarner als Funktionär im Bewerbungs OK für das Eidgenössische Schwingfest in Thun tätig. Der Schwingsport wird ihn sicher noch die nächsten 10 Jahre beruflich begleiten.
 
 Sein Sportstudium ist ihm sowohl früher als auch heute noch von grosser Hilfe. Sport ist schon immer ein wichtiger Teil von Glarners Leben gewesen. Deshalb hat er auch Sport studieren wollen. Nicht nur, damit er eine Ausbildung hat, sodass er auch nach dem Spitzensport einer Beschäftigung nachgehen kann.
+
+> Ich bin absolut zufrieden, wie es gekommen war. Alles gut.
