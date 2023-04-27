@@ -56,6 +56,10 @@ Sein Sportstudium ist ihm sowohl früher als auch heute noch von grosser Hilfe. 
 
 > Ich bin absolut zufrieden, wie es gekommen war. Alles gut.
 
-{{<box title="Ausklappbare Box">}}
+{{<box title="Infobox">}}
+
+Das Thema ist «Verletzungen in Spitzensport».
+Allgemeine Information zu Zahlen und Fakten.
+Wie viele Schweizer Spitzensportler Schwinger wegen einem Unfall aufhören müssten.
 
 {{</box>}}
