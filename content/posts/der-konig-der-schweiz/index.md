@@ -10,8 +10,6 @@ Eines unverhofften Tages bei einem Termin mit der Schweizer Illustrierten, kommt
 
 ![Matthias Glarner als Trainer in einer Spitzensportrekrutenschule in Maggligen. ](download-1-.jpg)
 
-
-
 Wir sassen dem ehemaligen Schwingerkönig Matthias Glarner gegenüber. Er schien sichtlich locker zu sein, obschon er gleich ein Interview zu seinen doch bewegenden und verändernden Verletzungen gibt.
 
 ### Der Sport und das Unglück
@@ -57,3 +55,7 @@ Heute engagiert sich Matthias Glarner unter anderem als Trainer in der Spitzensp
 Sein Sportstudium ist ihm sowohl früher als auch heute noch von grosser Hilfe. Sport ist schon immer ein wichtiger Teil von Glarners Leben gewesen. Deshalb hat er auch Sport studieren wollen. Nicht nur, damit er eine Ausbildung hat, sodass er auch nach dem Spitzensport einer Beschäftigung nachgehen kann.
 
 > Ich bin absolut zufrieden, wie es gekommen war. Alles gut.
+
+{{<box title="Ausklappbare Box">}}
+
+{{</box>}}
