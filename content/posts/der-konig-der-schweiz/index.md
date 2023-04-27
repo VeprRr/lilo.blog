@@ -6,9 +6,11 @@ pinned = false
 image = "m-g-cpop.jpg"
 description = "Matthias Glarner ist ein berühmter Schweizer Athlet und ein ehemaliger König der Schweiz."
 +++
+Eines unverhofften Tages bei einem Termin mit der Schweizer Illustrierten, kommt es zu einem Unfall, der das Leben von Matthias Glarner prägnant verändert. Diese Tragödie erfordert viel Geduld, Kraft und grosse Mühen.
+
 ![Matthias Glarner als Trainer in einer Spitzensportrekrutenschule in Maggligen. ](download-1-.jpg)
 
-Eines unverhofften Tages bei einem Termin mit der Schweizer Illustrierten, kommt es zu einem Unfall, der das Leben von Matthias Glarner prägnant verändert. Diese Tragödie erfordert viel Geduld, Kraft und grosse Mühen.
+
 
 Wir sassen dem ehemaligen Schwingerkönig Matthias Glarner gegenüber. Er schien sichtlich locker zu sein, obschon er gleich ein Interview zu seinen doch bewegenden und verändernden Verletzungen gibt.
 
