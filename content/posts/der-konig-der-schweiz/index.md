@@ -36,7 +36,7 @@ Die Operationen hinter sich lassend, trainiert Glarner wieder weiter und bereite
 
 > «Es ist schon eine Mammutaufgabe».
 
-Schlussendlich hat er mit der Titelverteidigung ein klares Ziel. Nach seinem Rücktritt hat er sich psychisch und physisch «leer» gefühlt. In Zeiten von Rückschlägen und mentalen Tiefs, holt sich Glarner Kraft von seinem Umfeld und dem Ziel den Schwingerkönigstitel verteidigen zu können. Ebenso wichtig für den mentalen Aufbau, ist die Unterstützung eines Sportpsychologen.
+Schlussendlich hat er mit der Titelverteidigung ein klares Ziel. Nach seinem Rücktritt hat er sich psychisch und physisch «leer» gefühlt. In Zeiten von Rückschlägen und mentalen Tiefs holt sich Glarner Kraft von seinem Umfeld und dem Ziel den Schwingerkönigstitel verteidigen zu können. Ebenso wichtig für den mentalen Aufbau, ist die Unterstützung eines Sportpsychologen.
 
 > «Durch die psychologische Unterstützung, habe ich alles gut verarbeitet und trage heute keinerlei offene Wunden mit mir herum».
 
