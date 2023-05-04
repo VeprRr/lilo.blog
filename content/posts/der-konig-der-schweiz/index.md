@@ -10,6 +10,8 @@ Eines unverhofften Tages bei einem Termin mit der Schweizer Illustrierten, kommt
 
 ![Matthias Glarner als Trainer in einer Spitzensportrekrutenschule in Maggligen. ](download-1-.jpg)
 
+Unverhofft kommt oft. Der lange und schwere Weg vom Unglück über die Heilung und den Wiederaufbau bis hin zur persönlichen Unterstützung und die Zukunft nach dem Spitzensport.
+
 Wir sassen dem ehemaligen Schwingerkönig Matthias Glarner gegenüber. Er schien sichtlich locker zu sein, obschon er gleich ein Interview zu seinen doch bewegenden und verändernden Verletzungen gibt.
 
 ### Der Sport und das Unglück
