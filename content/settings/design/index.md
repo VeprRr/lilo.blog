@@ -2,6 +2,6 @@
 headless = true
 icon = "/media/qqqqqqqqqq.jpg"
 logo = "/media/home-01.png"
-image = "/media/img_1648.jpeg"
+image = "/media/img_1648-1-.jpeg"
 color = "#5d9fbd"
 +++
