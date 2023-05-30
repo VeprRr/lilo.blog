@@ -3,6 +3,7 @@ title = "Der König der Schweiz"
 date = "2023-04-07"
 draft = false
 pinned = false
+tags = ["Reportage", "Spitzensport"]
 image = "m-g-cpop.jpg"
 description = "Matthias Glarner ist ein berühmter Schweizer Athlet und ein ehemaliger König der Schweiz."
 +++
