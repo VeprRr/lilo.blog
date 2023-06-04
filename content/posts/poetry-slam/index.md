@@ -4,17 +4,27 @@ date = "2023-05-29"
 draft = false
 pinned = false
 +++
-Im grünen Dickicht des Waldes, wo Baumkronen sich wie Hände vereinen,
-Verzaubert uns die Natur mit ihrem Lied, das sanft durchs Laub erscheint.
-Ein leises Flüstern der Blätter, ein Tanz der Sonnenstrahlen, so fein,
-Der Wald, ein Ort der Stille und Schönheit, birgt Geheimnisse tief im Sein.
+Wir rennen wie im Hamsterrad durchs Leben,
+Von Tür zu Tür, von Bildschirm zu Bildschirm.
+Wir rennen, rennen, aber vergessen zu leben,
+Verlieren uns in Arbeit und Konsum.
 
-Doch immer mehr rückt er in den Fokus, wird zum Schauplatz des Wandels nun,
-Durch schwindende Bäume, brennende Wälder, hören wir Natures Hilferuf.
-Die Zeit zum Handeln ist gekommen, lasst uns zusammenstehen und wehren,
-Um den Wald zu schützen, sein Echo aus Leben und Harmonie zu mehren.
+Die Kinder ruhen auf Tablets und Handys aus,
+Anstatt auf Wiesen und unter Bäumen zu spielen.
+Sie kennen Roboter, aber nicht die Sonne und Taue,
+Haben Apps, aber keine Fantasie und Träume.
 
-Gemeinsam können wir den Klang der Hoffnung wiederherstellen, rein,
-Das Gleichgewicht der Natur wiederfinden, in Einklang mit ihr sein.
-Lasst uns dem Wald eine Stimme geben, damit er weiterhin singen mag,
-Für uns und kommende Generationen, erfüllt von Leben, Tag für Tag.
+Wir sitzen im goldenen Käfig der Technik,
+Vom Netz der Algorithmen gefangen.
+Aber statt Glück schenkt er uns nur Hektik,
+Zerfrisst unsere Seele, statt sie zu nähren.
+
+Lass die Bildschirme doch einmal dunkel bleiben!
+Geh hinaus ins Wunder der echten Welt!
+Vergiss für eine Weile zu konsumieren und streben,
+Versinke einfach mal in der Stille des Augenblicks.
+
+Die moderne Welt braucht einfaches Menschsein,
+braucht Berührung und echtes Teilen.
+Dann strahlt auch der Bildschirm nicht mehr so hell,
+Wenn das wahre Leben wieder Sinn erhält.
