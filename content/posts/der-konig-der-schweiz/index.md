@@ -45,7 +45,7 @@ Schlussendlich hat er mit der Titelverteidigung ein klares Ziel. Nach seinem Rü
 
 Seine Sponsoren haben sehr grosse Geduld in Bezug auf die Verletzung gezeigt. Sogar noch ein neuer Sponsor ist in dieser Zeit dazu gekommen. Ausserdem stehen sie nicht nur schüchtern am Rande, sondern helfen auch aktiv beim Aufbau mit.
 
-> «Dies ist ein natürlicher Prozess».
+> «Der Rücktritt ist ein natürlicher Prozess».
 
 Nach dem Rücktritt haben die meisten Sponsoren ihren Vertrag mit Glarner beendet. Jedoch sind nicht ganz alle gegangen. Er arbeitet heute noch mit verbleibenden Sponsoren zusammen.
 
