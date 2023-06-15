@@ -13,7 +13,7 @@ Eines unglücklichen Tages bei einem Termin mit der Schweizer Illustrierten komm
 
 **Unverhofft kommt oft. Der lange und schwere Weg vom Unglück über die Heilung und den Wiederaufbau bis hin zur persönlichen Unterstützung und die Zukunft nach dem Spitzensport.**
 
-Wir sitzen dem ehemaligen Schwingerkönig Matthias Glarner gegenüber. Er ist gut gelaunt und sichtlich locker, obschon er gleich ein Interview zu seinen doch bewegenden und verändernden Verletzungen gibt.
+Wir sitzen dem ehemaligen Schwingerkönig Matthias Glarner in Magglingen in einem kleinen Besprächungszimmer gegenüber. Er ist gut gelaunt und sichtlich locker, obschon er gleich ein Interview zu seinen doch bewegenden und verändernden Verletzungen gibt.
 
 ### Der Sport und das Unglück
 
