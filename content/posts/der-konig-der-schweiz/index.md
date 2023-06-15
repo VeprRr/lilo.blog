@@ -19,7 +19,7 @@ Wir sitzen dem ehemaligen Schwingerkönig Matthias Glarner in Magglingen in eine
 
 Für Matthias Glarner sind Interviews und Fotoshootings fester Bestandteil seiner Agenda. Solche Fotoshootings sollen hauptsächlich als Werbung und Vermarktung der jeweiligen Sponsoren dienen, aber auch, um seine Popularität zu fördern. Dieses eine Fotoshooting für die Schweizer Illustrierte ist für Matthias Glarner verhängnisvoll.
 
-Im Juni 2017 zwischen 7.00 – 7.30 Uhr ist der Schwingerkönig am Hasliberg, noch bevor die Gondelbahn offiziell öffnet. Die Schweizer Illustrierte ist ebenfalls bereits vor Ort. Anschliessend starten sie mit dem Fotoshooting. Er steigt auf eine Gondel hinauf, um aus dieser Perspektive fotografiert zu werden. Alles scheint reibungslos zu funktionieren. Doch dann riss seine Sicherungsleine unerwartet und er ist geschlagene 12 Meter auf den Boden gefallen. Der Absturz von der Gondel ereignet sich ca. um 8.00 – 8.30 Uhr.
+Im Juni 2017 zwischen 7.00 – 7.30 Uhr ist der Schwingerkönig am Hasliberg, noch bevor die Gondelbahn offiziell öffnet. Die Schweizer Illustrierte ist ebenfalls bereits vor Ort. Anschliessend starten sie mit dem Fotoshooting. Er steigt auf eine Gondel hinauf, um aus dieser Perspektive fotografiert zu werden. Alles scheint reibungslos zu funktionieren. Doch dann riss unerwartet seine Sicherungsleine und er ist 12 Meter auf den Boden gefallen. Der Absturz von der Gondel ereignet sich ca. um 8.00 – 8.30 Uhr.
 
 ### Aufgeben ist keine Option
 
@@ -27,7 +27,7 @@ Die Rega fliegt ihn rasch nach Bern ins Inselspital. Dort muss sich Matthias Gla
 
 > Zuerst dachte ich, es ist gar nicht so schlimm und man kann es operieren. Am Anfang waren es eigentlich positive Gedanken gewesen.
 
-Für Matthias Glarner ist es zunächst ein Aufwachen und Realisieren der Lage. Der Arzt hat ihm schnell gesagt, diese Saison ist vorbei. Aber an das Karierende denkt Matthias Glarner noch überhaupt nicht, sagt er mit grosser Entschlossenheit.
+Für Matthias Glarner ist es zunächst ein Aufwachen und Realisieren der Lage. Der Arzt hat ihm schnell gesagt, diese Saison ist vorbei. Aber an das Karrierende denkt Matthias Glarner noch überhaupt nicht, sagt er mit grosser Entschlossenheit.
 
 ### Heilung und Wiederaufbau
 
