@@ -41,7 +41,7 @@ Schlussendlich hat er mit der Titelverteidigung ein klares Ziel. Nach seinem Rü
 
 > «Durch die psychologische Unterstützung habe ich alles gut verarbeitet und ich trage heute keinerlei offene Wunden mit mir herum».
 
-### Sponsoren und Unterstützung
+### Sponsoren Unterstützen
 
 Seine Sponsoren haben sehr grosse Geduld in Bezug auf die Verletzung gezeigt. Sogar noch ein neuer Sponsor ist in dieser Zeit dazu gekommen. Ausserdem stehen die sie nicht nur schüchtern am Rande, sondern helfen auch aktiv beim Aufbau und mit.
 
