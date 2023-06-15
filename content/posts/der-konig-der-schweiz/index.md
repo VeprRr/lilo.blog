@@ -33,7 +33,7 @@ Für Matthias Glarner ist es zunächst ein Aufwachen und Realisieren der Lage. D
 
 Die Liste gebrochener Köperteile ist lang. Nach den Operationen kommt die Reha, also eine Wiederaufbauphase. Die Grundheilung dauert 2-3 Jahre, bis jede Verletzung richtig verheilt und ausgeheilt ist, dauert es ca. 4-5 Jahre. Obschon das Becken am sichersten eingebunden ist, ist es zu einem grossen Handicap geworden. Nicht mehr als einen 90° Winkel darf er mit seinem gebrochenen Becken machen, so Glarner.
 
-Die Operationen hinter sich lassend, trainiert Glarner wieder weiter und bereitet sich auf die kommende Saison vor. Das tägliche Training ist jeden Tag eine grosse Herausforderung. Manchmal gibt es Fortschritte, dann aber auch wieder Tage, an denen es ihn zurückwirft. Glarner muss bei jedem Training mit dem «Fiebermesser» schauen, was geht und was noch nicht geht, verdeutlicht Glarner mit passender Gestik.
+Die Operationen hinter sich lassend, trainiert Glarner wieder weiter und bereitet sich auf die kommende Saison vor. Das tägliche Training ist jeden Tag eine grosse Herausforderung. Manchmal gibt es Fortschritte, dann aber auch wieder Tage, an denen es ihn zurückwirft. Glarner muss bei jedem Training mit dem «Fiebermesser» schauen, was geht und was noch nicht geht, verdeutlicht er mit passender Gestik.
 
 > «Es ist schon eine Mammutaufgabe».
 
