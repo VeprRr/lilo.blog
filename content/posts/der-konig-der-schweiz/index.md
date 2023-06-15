@@ -65,6 +65,6 @@ Eine weitere Studie des BASPO aus dem Jahr 2017 zeigt, dass Verletzungen im Spit
 
 Es liegen keine konkreten Zahlen darüber vor, wie viele Schweizer Spitzenschwinger aufgrund von Verletzungen oder Unfällen ihre Karriere beenden müssen. 
 
-Die Schwinger haben auch ein eigenes Versicherungssystem, welches die Kosten für Unfälle und Verletzungen im Training und Wettkampf abdeckt. Wenn ein Schwinger jedoch aufgrund einer Verletzung oder Unfall dauerhaft ausfällt, kann dies für ihn oder sie eine grosse finanzielle und persönliche Herausforderung darstellen.
+Die Schwinger haben auch ein eigenes Versicherungssystem, welches die Kosten für Unfälle und Verletzungen im Training und Wettkampf abdeckt. Wenn ein Schwinger jedoch aufgrund einer Verletzung oder Unfall dauerhaft ausfällt, kann dies für ihn eine grosse finanzielle und persönliche Herausforderung darstellen.
 
 {{</box>}}
