@@ -63,7 +63,7 @@ Verletzungen im Spitzensport sind ein häufiges Problem in der Schweiz. Laut ein
 
 Eine weitere Studie des BASPO aus dem Jahr 2017 zeigt, dass Verletzungen im Spitzensport nicht nur für die Athletinnen und Athleten selbst ein Problem darstellen, sondern auch für das Gesundheitssystem und die Wirtschaft der Schweiz. Die Kosten für die Behandlung von Sportverletzungen werden auf rund 700 Millionen Franken pro Jahr geschätzt.
 
-Es liegen keine konkreten Zahlen darüber vor, wie viele Schweizer Spitzenschwinger aufgrund von Verletzungen oder Unfällen ihre Karriere beenden müssen. Es gibt jedoch zahlreiche Beispiele von Schwinger-Athleten, die aufgrund von Verletzungen oder langfristigen Schäden ihre Karriere vorzeitig beenden mussten.
+Es liegen keine konkreten Zahlen darüber vor, wie viele Schweizer Spitzenschwinger aufgrund von Verletzungen oder Unfällen ihre Karriere beenden müssen. 
 
 Die Schwinger haben auch ein eigenes Versicherungssystem, welches die Kosten für Unfälle und Verletzungen im Training und Wettkampf abdeckt. Wenn ein Schwinger jedoch aufgrund einer Verletzung oder Unfall dauerhaft ausfällt, kann dies für ihn oder sie eine grosse finanzielle und persönliche Herausforderung darstellen.
 
