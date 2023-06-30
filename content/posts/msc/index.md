@@ -4,7 +4,7 @@ date = "2023-06-30"
 draft = false
 pinned = false
 +++
-![]()
+![](msc-cruzeiros-logo.png)
 
 #### **Facts and Figures:**
 
