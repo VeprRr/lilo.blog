@@ -4,8 +4,6 @@ date = "2023-06-30"
 draft = false
 pinned = false
 +++
-![]()
-
 #### **Facts and Figures:**
 
 · Nestlé hat im vergangenen Jahr 94.4 Milliarden Franken umgesetzt. Das sind 8.3 Prozent mehr als im Vorjahr.
@@ -28,7 +26,7 @@ pinned = false
 
 Standorte in der Schweiz:
 
-![]()
+![](microsoftteams-image-1-.png)
 
 Überblick der Rohstoffe 16.3 Prozent der Produkte als «nachhaltig produziert» bezeichnet.
 
